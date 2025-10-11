@@ -16,4 +16,4 @@
                         will be responded by!!! (unless youre a rlly close moot)
                        I draw freehand as a hobby, and currently writing a script
                              for my own object show. 
-                                 # IT STANDS AS
+                                 [IT STANDS AS]
