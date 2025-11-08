@@ -18,5 +18,5 @@
                           Please don't interact if youre a proshipper, or anything weird.
                                   My moods can vary, im considered to be on the bipolar spectrum.
                                     I dont take confrontations well, be patient with me, at least.
-                                          Don't call me Neil, Luci, Lucian, Shin, or Claud.
+                                        
                                   
