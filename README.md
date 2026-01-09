@@ -5,7 +5,7 @@
                                                  ARTIST, CURRENT VIOLIN PLAYER ^_^
                                                       PANSEXUAL, DEMIGIRL !
                                               Fifteen's and Donut's biggest yume (TPOT)
-                                        Alien Stage, Tpot, BFDIA, Objectified, Dandy's World
+                                        Alien Stage, Tpot, BFDIE, Objectified, Dandy's World
                                            Forsaken, Bad Things, FNAF, Regretevator, etc!
                                                      Gnaw, People - Alex G
 
